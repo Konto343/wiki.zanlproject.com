@@ -9,9 +9,9 @@ Alex Woods was a poor boy who lived midst of the industrial revolution Earth. Ho
 
 He loved his family, but as much he had to work, spending time with them wasn't possible. The grueling tasks managed to keep him active and made their family survive together. This changed as he aged 17, which his mother would succumb to a deadly disease. The money that collected wasn't enough to pay off the treatment, so his mother passed away. For his father, was found dangling from a noose outside the factory's entrance, marking another one lost to the horrible world. 
 
-As Alex found his father in such a state, it depraved him all of emotion, leaving him blank. The weather would further add to the staleness as rain poured across the city. The clouds turned black, with smoke tainting them. He returned home, not being able to recall anything the day previous. However, returning to the grey, dark, and old wooden, he'd only heard the reverbnation of rain drops. 
+As Alex found his father in such a state, it depraved him all of emotion, leaving him blank. The weather would further add to the staleness as rain poured across the city. The clouds turned black, with smoke tainting them. He returned home, not being able to recall anything the day previous. However, returning to the Grey, dark, and old wooden, he'd only heard the reverberation of rain drops. 
 
-A voice awoke, fading into his mind, it was afar, but very recognizable. A figure blended into the light from the dark, it wore a dark and dirt outfit. It approached. Alex saw it's face, it was his father. So in response, he hugged the figure unknowningly.
+A voice awoke, fading into his mind, it was afar, but very recognizable. A figure blended into the light from the dark, it wore a dark and dirt outfit. It approached. Alex saw it's face, it was his father. So in response, he hugged the figure unknowingly.
 
 It's voice changed, pivoting to a deeper voice, smooth and grim. The figure grabbed the young Alex back before he came to a quick realization. The boy struggled to break free from it's clingy hands. It spoke, telling his story about its own torment, slowly convincing him to why he allow him to teach him.
 

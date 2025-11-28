@@ -12,12 +12,6 @@ filter: drop-shadow(20px 20px 20px #111);
 src='/items/deceus.png' title='Modern Logo'>
 {{</html>}}
 
-A man powered by greed and money. Is able to move sliently around and evade spaces quickly. Slightly insane.
-
-Middle child of the Zango family. Picks on people and loves money. Very greedy, but remains serious and professional.
-
----------------
-
 Deceus is the youngest and shortest member of the Zango family. Considering himself as the "middle child" despite being the youngest.
 
 Deceus is one of the fastest devils to stand on their planet. He is emotionally powered through the materialistic value of currency, and money.
@@ -32,7 +26,7 @@ He loved the design of these coins, and so, began to hoard them. In a hidden are
 
 In a fit of rage, he continued his gathering, but outside the house, far-far away. Soon, he found this back and forth, too time consuming, and left the household all together. Leaving behind his family, and sibling.
 
-He venture deep into the crevasses of the underworld. The eyes that pass him, only stared momentaily before continuing on. Deceus wandered into an old factory used to mass produce weapons in the war times. Here, he refitted the place, turning every nook and corner into his own.
+He venture deep into the crevasses of the underworld. The eyes that pass him, only stared momentarily before continuing on. Deceus wandered into an old factory used to mass produce weapons in the war times. Here, he refitted the place, turning every nook and corner into his own.
 
 He ought to restart, so he grabbed a gold cold he keep deep inside his pocket, and he tossed it onto the floor. It was barely anything, but it forced him to undergo training to hone his skills, speed, and stealth. Eventually, it wasn't enough and so he observed others doing the same, taking mental notes of how to do what they did but butter. Over and over again, he failed, succeeded, and laughed. Never did he once cry, he only took pain and turned into dedication.   
 
